@@ -1,3 +1,3 @@
-# Fortnite-Packs
+# Fortnite-Paks
 
 Season 5
